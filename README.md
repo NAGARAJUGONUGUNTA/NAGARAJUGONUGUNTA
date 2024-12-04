@@ -2,7 +2,7 @@
 - 👀 I’m interested in java web development
 - 🌱 I’m currently learning new skills daily
 - 💞️ I’m looking to collaborate on .
-- 📫 How to reach me 9347453434 or nagarajugonugunta10@gmail.com
+- 📫 How to reach me +91 9347453434 or nagarajugonugunta10@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
